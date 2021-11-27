@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @NUMEN1156
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👋 ~ @NUMEN1156
+- 👀 - BEATSbauen!!!
+- 🌱 • I’m currently learning ..[.Everytime!]
+- 💞️ - https://invt.co/@NUMENRMX
+- 📫 ~ How to reach me ...Ich bin als @numenrmx bei Instagram. Installiere die App, um meinen Fotos und Videos zu folgen. https://www.instagram.com/invites/contact/?i=hkyuyuf7r08s&utm_content=eynskug
 
 <!---
 NUMEN1156/NUMEN1156 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
